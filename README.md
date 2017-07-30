@@ -1,1 +1,1 @@
-# aka
+# aka resul nasılsın
